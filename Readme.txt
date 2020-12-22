@@ -1,3 +1,7 @@
+CREATED BY @THESOMESHKARTHI
+
+
+
 Thanks for downloading this theme!
 
 Theme Name: NewBiz
